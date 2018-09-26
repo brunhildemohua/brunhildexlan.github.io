@@ -3,7 +3,7 @@
 ### [中秋节，又称月夕、秋节、仲秋节、八月节、八月会、追月节、玩月节、拜月节、女儿节或团圆节，是流行于中国众多民族与汉字文化圈诸国的传统文化节日，时在农历八月十五；因其恰值三秋之半，故名，也有些地方将中秋节定在八月十六。](https://brunhildemohua.github.io/blog180924.github.io/)
 
 # MoHuaBlog 180923
-## 伯伦希尔brunhilde
+## 伯伦希尔brunhild
 ###这里的伯伦希尔不是 [某百科中的女武神](https://wapbaike.baidu.com/item/%E4%BC%AF%E4%BC%A6%E5%B8%8C%E5%B0%94/2459242?timestamp=1537894182361)而是一家擅于召集各路人才的科技公司。这里有高情商的翻译官，高智商的程序员等等，期待你的加入。[为了伯伦希尔的荣耀](https://brunhildemohua.github.io/blog180923.github.io/)
 
 # MoHuaBlog 180922 
