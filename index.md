@@ -10,7 +10,7 @@
 ### 这里的伯伦希尔不是 [某百科中的女武神](https://wapbaike.baidu.com/item/%E4%BC%AF%E4%BC%A6%E5%B8%8C%E5%B0%94/2459242?timestamp=1537894182361)而是一家擅于召集各路人才的科技公司。这里有高情商的翻译官，高智商的程序员等等，期待你的加入。
 ### [为了伯伦希尔的荣耀](https://brunhildemohua.github.io/blog180923.github.io/)
 ### （日常一皮很开心2333）٩( 'ω' )و
-### ![image](https://github.com/brunhildemohua/brunhildxlan.github.io/blob/master/n.png)
+### ![image](n.png)
 
 ## MoHuaBlog 180922 
 ## 安徽师范大学数学计算机科学学院概况
@@ -20,5 +20,5 @@
 ## 荷兹
 ### www荷兹小天使出新歌了，感谢他还没放弃。相信在争议质疑的暴风雨中成长的他，会走的更远。(新歌超好听！好听（*/∇＼*）)
 ### [那鲸](https://brunhildemohua.github.io/blog180921.github.io/)
-### ![image](https://github.com/brunhildemohua/brunhildxlan.github.io/blob/master/2.jpg)
+### ![image](2.jpg)
 ### 尝试了n次图片还是只能在编辑时才能打开....而且还百度不到原因，so等以后问问大佬们吧。这次因为没带电脑so在网吧做了一个临时博客，等十月一带电脑回来我会补好作业哒~(ง •̀_•́)ง
