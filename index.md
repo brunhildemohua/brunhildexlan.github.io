@@ -17,4 +17,4 @@
 ## MoHuaBlog 180921 
 ## 荷兹
 ### www荷兹小天使出新歌了，感谢他还没放弃。相信在争议质疑的暴风雨中成长的他，会走的更远。(新歌超好听！好听（*/∇＼*）)
-###[那鲸](https://brunhildemohua.github.io/blog180921.github.io/)
+### [那鲸](https://brunhildemohua.github.io/blog180921.github.io/)
